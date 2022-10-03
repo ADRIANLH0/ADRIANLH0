@@ -1,6 +1,6 @@
 - 👋 Oi, eu sou @ADRIANLH0
 - 👀 Estou interessado em Aprender 
--
+-.........................
 
 
 
